@@ -1,5 +1,5 @@
 
--+-+-+-+-+-+-woe dek ga suka bilanh dech-+-+-+-
+-+-+-+-+-+-+-XRYMODSYT DEVELOPER-+-+-+-
 
 - 👋 Hi, I’m @Risky
 - 👀 I'live in sumbar...
